@@ -1,1 +1,1 @@
-Gracias a la informacion de JuanMa.ruiz 
+Gracias a el instructor richard maurello por la enseñanza y a juanmaruiz por la informacion 
